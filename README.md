@@ -1,1 +1,1 @@
-# projeler
+akıllı ev sistemleri maketi
