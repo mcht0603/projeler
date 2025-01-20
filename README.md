@@ -1,1 +1,1 @@
-akıllı ev sistemleri maketi
+akıllı ev sistemleri ve maketi
